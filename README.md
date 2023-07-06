@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-My name is Simone and I work at the BBC as a Software Engineer Team Lead in the Sounds web team.
+My name is Simone and I work at the BBC as a Software Engineer Team Lead for the Sounds web team.
 
 I'm a full time dad 🍼 with a passion for music: from playing it to listent to it. I love technology and digital content creation as well as taking my bike out for a ride, no matter where.
 
