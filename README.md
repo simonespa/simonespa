@@ -11,7 +11,7 @@
 - [LinkedIn](https://www.linkedin.com/in/simonespaccarotella)
 - [Medium](https://medium.simonespaccarotella.com)
 - [SlideShare](https://www.slideshare.net/simonespaccarotella)
-- [Twitter](https://twitter.com/AboutSaiMon) (yeah, I won't call it that)
+- [Twitter](https://twitter.com/AboutSaiMon) (yeah, the current name sucks)
 - [Instagram](https://www.instagram.com/about.saimon)
 - [YouTube](https://www.youtube.com/@about.saimon)
 - [Sounds Cloud](https://soundcloud.com/sai-mon-327928164)
